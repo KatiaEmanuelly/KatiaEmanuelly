@@ -1,4 +1,4 @@
-### Olá! Eu me chamo Kátia Emanuelly de Souza 🤚
+### Olá! Eu me chamo Kátia Emanuelly  🤚
 #### Que tal conhecer um pouco mais sobre mim? 😊
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/katia-emanuelly-033891255/)
